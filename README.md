@@ -1,4 +1,0 @@
-# holland-is-for-serialkillers
-
-# bumper sticker
-https://en.wikipedia.org/wiki/Bumper_sticker
